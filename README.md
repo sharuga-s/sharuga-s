@@ -1,3 +1,3 @@
-Hi! I'm Sharuga, a student double-majoring in Computer Science and Finance at the University of Waterloo! 🪿
+cs & finance @ uwaterloo 🪿
 
-If you have an exciting project or innovative idea, feel free to reach out at s6suthak@uwaterloo.ca—let’s build something awesome! 🚀
+hmu -> s6suthak@uwaterloo.ca
